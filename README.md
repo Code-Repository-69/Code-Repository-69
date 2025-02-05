@@ -1,3 +1,3 @@
 Just a 19 year old casual blockchain devloper, a newborn entrepreneur, a veteran designer, an unfamous author and poet, a non ceritfied michelin chef, a professional trader and a verfied investor.
-Significantly i have changed alot of careers in my life as a blooming teen because, jack of all trades master of none is my favourite code, apart from being weird and indecisive, i hold PHD in a humour and being witty.
+Significantly i have changed alot of careers in my life as a blooming teen because, jack of all trades master of none is my favourite quote, apart from being weird and indecisive, i hold PHD in a humour and being witty.
 Apart from this all you would see me doing alot of new things very often, but will forever stick to my casualty skill Blockchain devlopment and if its about coding then you would see alot of my work here soon.
